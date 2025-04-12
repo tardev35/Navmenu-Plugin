@@ -1,7 +1,7 @@
 # Nav menu Plugin For Wordpress
 ### :blue_heart: Dark Blue :blue_heart:	
-![Dark Blue](https://i.imgur.com/wy8V36N.png)
-:point_right:	 __DOWNLOAD__[https://raw.githubusercontent.com/tardev35/Navmenu-Plugin/refs/heads/main/nav-menu-darkblue.rar]
+![Dark Blue](https://i.imgur.com/wy8V36N.png)\
+:point_right:	 [DOWNLOAD][https://raw.githubusercontent.com/tardev35/Navmenu-Plugin/refs/heads/main/nav-menu-darkblue.rar]
 ### :green_heart:	Green :green_heart:	
 ![Green](https://i.imgur.com/aKwtTiq.png)
 
