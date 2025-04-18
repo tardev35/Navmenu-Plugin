@@ -23,5 +23,5 @@
 
 ### :heart::heartpulse: Pink :heart::heartpulse:
 ![Pink](https://i.imgur.com/ruv5Lwj.png)\
-:point_right:	 [DOWNLOAD](https://raw.githubusercontent.com/tardev35/Navmenu-Plugin/refs/heads/main/nav-menu-redpink.rar)
+:point_right:	 [DOWNLOAD](https://raw.githubusercontent.com/tardev35/Navmenu-Plugin/refs/heads/main/nav-menu-pink.rar)
 
