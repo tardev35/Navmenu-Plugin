@@ -38,3 +38,7 @@
 ![Pink](https://i.ibb.co/4nB29wFG/goldnav.png)\
 :point_right:	 [DOWNLOAD](https://download1336.mediafire.com/1tyxb5giloagl1NMoWcCHqDls4YiXDKKZdTEB2i-gT2MUXAJlR62n7LsHh4loiRUkgHI0IsMF_okoa-YgNJgWGROH3GPrFwcXkc2s2LExEhWJNco5NX05P8lykLsGSW5uFATBk0rErTsvGQ5FjJdvV1yBqq4wE5iaetfBm2SqEuUWaI/zqql6rteo96919h/nav-menu-gold-yellow.zip)
 
+### 🩷 SOFT PINK 🩷
+![Pink](https://i.ibb.co/C3khYj8S/softpink.png)\
+:point_right:	 [DOWNLOAD](https://download1528.mediafire.com/yswydtzknrlgCMk_ObsuaCmbAWHAveVvNGMnrRQ2BhrN1_sZ3IfmYbHjSgeNiA-JiuRCLAnmBDO8wFtCewyvmgkQDIlGB1G5CPoNKM2R9H1UqOt2aEJPorUX_PguQEyeGQM_p47-e1oMFHSTldIk_n10roH52cMV0NIlRqOuWNtTjAQ/8uvx2lkesnsqt38/nav-menu-softpink.zip)
+
