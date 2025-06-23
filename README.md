@@ -26,3 +26,7 @@
 ![Pink](https://i.imgur.com/ruv5Lwj.png)\
 :point_right:	 [DOWNLOAD](https://download947.mediafire.com/ahar2vvgfolgWkvuWyfeQ6ahLaq2C1icoQeBhjDoreE7TlHq5pJtW6sCFqcs-w7JR2Qe2OaCQfsl1sI_X2FaX45tTvbMRZQBCM6y-TF7PxO45E35f5l0988GSh7MP8HdVWgwB8KVfGqsJvCpInz0DHWKmFnXxZFsWP_OAf6MmxuP/jbt5oirdswq5d1c/nav-menu-pink.zip)
 
+### :blue_heart: Blue :blue_heart:
+![Pink](https://i.ibb.co/R4t9hJsK/blue-softjpg.jpg)\
+:point_right:	 [DOWNLOAD](https://download1334.mediafire.com/nzft45wxxopgLIfj2TTAUN6Yxg6uolui6P8-MVDjTGMtQs4UIHZ1xAdZGBcasR50geOmt9c2MmdFCeGq6HfSl_Y9XJwa6alLi2q62oG8WClHo03an3hGG837FLHu6xsNsf_tprhWF0aR45KcXBuom5AyGSWx0GYhgpEV8I03LNBcDCY/svjniwwcx8xkvrh/nav-menu-blue.zip)
+
