@@ -46,4 +46,8 @@
 ![Pink](https://i.ibb.co/9HYvNLQ7/oragesimply.png)\
 :point_right:	 [DOWNLOAD](https://download1322.mediafire.com/ypt5q744wjvgxALoR_Q6EENOMZDkn80Aj6jwsuUpaYEnn1RqFSopHIQJcDz6h55W9VzDeSxOQmQpENfDwkWWFowwOLYsrux18zRwwpwjoVl39CMHx8s0iTTjXLwJHOavAcI-Yq4ue1BCntGzvNADsoKslCxmfn2eCTonusn99wWaDgs/rc482isvf0w43jy/nav-menu-sim-orange.zip)
 
+### 🟪🟪 Dark Purple 🟪🟪
+![Pink](https://i.ibb.co/RT6YZ5qk/darkpurplr.png)\
+:point_right:	 [DOWNLOAD](https://download1326.mediafire.com/frhczdk7qsjgRgpEZrP0aIp9QNUnemkBS-T4ltfGfUZkaSL9CaoslkaSiwqsz_dhVnmoilLQrvBuC47NC9-XQ3Ih8OT0t9yyNUVbagmY-VxYDVWBomeuslj85xzyf8W-63VDsOM14pqNxso0jGl9zv2slmsvD0PhcC1e9RBTqRt4NuA/mv19xw03r4khreo/nav-menu-darkpurplr.zip)
+
 
