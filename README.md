@@ -42,3 +42,8 @@
 ![Pink](https://i.ibb.co/C3khYj8S/softpink.png)\
 :point_right:	 [DOWNLOAD](https://download1528.mediafire.com/yswydtzknrlgCMk_ObsuaCmbAWHAveVvNGMnrRQ2BhrN1_sZ3IfmYbHjSgeNiA-JiuRCLAnmBDO8wFtCewyvmgkQDIlGB1G5CPoNKM2R9H1UqOt2aEJPorUX_PguQEyeGQM_p47-e1oMFHSTldIk_n10roH52cMV0NIlRqOuWNtTjAQ/8uvx2lkesnsqt38/nav-menu-softpink.zip)
 
+### 🍊 Simple Orange 🍊
+![Pink](https://i.ibb.co/9HYvNLQ7/oragesimply.png)\
+:point_right:	 [DOWNLOAD](https://download1322.mediafire.com/ypt5q744wjvgxALoR_Q6EENOMZDkn80Aj6jwsuUpaYEnn1RqFSopHIQJcDz6h55W9VzDeSxOQmQpENfDwkWWFowwOLYsrux18zRwwpwjoVl39CMHx8s0iTTjXLwJHOavAcI-Yq4ue1BCntGzvNADsoKslCxmfn2eCTonusn99wWaDgs/rc482isvf0w43jy/nav-menu-sim-orange.zip)
+
+
