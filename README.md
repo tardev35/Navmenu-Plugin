@@ -30,3 +30,11 @@
 ![Pink](https://i.ibb.co/R4t9hJsK/blue-softjpg.jpg)\
 :point_right:	 [DOWNLOAD](https://download1334.mediafire.com/nzft45wxxopgLIfj2TTAUN6Yxg6uolui6P8-MVDjTGMtQs4UIHZ1xAdZGBcasR50geOmt9c2MmdFCeGq6HfSl_Y9XJwa6alLi2q62oG8WClHo03an3hGG837FLHu6xsNsf_tprhWF0aR45KcXBuom5AyGSWx0GYhgpEV8I03LNBcDCY/svjniwwcx8xkvrh/nav-menu-blue.zip)
 
+### 🟣 Purple 🟣
+![Pink](https://i.ibb.co/zhFJfymC/purple.png)\
+:point_right:	 [DOWNLOAD](https://download943.mediafire.com/g09objiiu8tgb2qHHnI6Wpl0lpCSLdi1DYxmV_XxTghO0F3bFEnO6LfxQGIKMhz0ruJTS-B0-QwxnSf9aoZQdWbxDhv4mjITkq_kCPCd9FqY82vmRXZmQdU_hjnIbbSkwohPztTjbE_TgXKjNUjtIBgz2RtPcHu9PlNmKvlyLNcKnf0/vvmkqvxlzws4d2q/nav-menu-gold.zip)
+
+### 💛 Purple 🟡
+![Pink](https://i.ibb.co/4nB29wFG/goldnav.png)\
+:point_right:	 [DOWNLOAD](https://download1336.mediafire.com/1tyxb5giloagl1NMoWcCHqDls4YiXDKKZdTEB2i-gT2MUXAJlR62n7LsHh4loiRUkgHI0IsMF_okoa-YgNJgWGROH3GPrFwcXkc2s2LExEhWJNco5NX05P8lykLsGSW5uFATBk0rErTsvGQ5FjJdvV1yBqq4wE5iaetfBm2SqEuUWaI/zqql6rteo96919h/nav-menu-gold-yellow.zip)
+
