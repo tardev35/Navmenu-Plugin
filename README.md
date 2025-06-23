@@ -34,7 +34,7 @@
 ![Pink](https://i.ibb.co/zhFJfymC/purple.png)\
 :point_right:	 [DOWNLOAD](https://download943.mediafire.com/g09objiiu8tgb2qHHnI6Wpl0lpCSLdi1DYxmV_XxTghO0F3bFEnO6LfxQGIKMhz0ruJTS-B0-QwxnSf9aoZQdWbxDhv4mjITkq_kCPCd9FqY82vmRXZmQdU_hjnIbbSkwohPztTjbE_TgXKjNUjtIBgz2RtPcHu9PlNmKvlyLNcKnf0/vvmkqvxlzws4d2q/nav-menu-gold.zip)
 
-### 💛 Purple 🟡
+### 💛 GOLD 🟡
 ![Pink](https://i.ibb.co/4nB29wFG/goldnav.png)\
 :point_right:	 [DOWNLOAD](https://download1336.mediafire.com/1tyxb5giloagl1NMoWcCHqDls4YiXDKKZdTEB2i-gT2MUXAJlR62n7LsHh4loiRUkgHI0IsMF_okoa-YgNJgWGROH3GPrFwcXkc2s2LExEhWJNco5NX05P8lykLsGSW5uFATBk0rErTsvGQ5FjJdvV1yBqq4wE5iaetfBm2SqEuUWaI/zqql6rteo96919h/nav-menu-gold-yellow.zip)
 
