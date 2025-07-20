@@ -50,4 +50,7 @@
 ![Pink](https://i.ibb.co/RT6YZ5qk/darkpurplr.png)\
 :point_right:	 [DOWNLOAD](https://download1326.mediafire.com/frhczdk7qsjgRgpEZrP0aIp9QNUnemkBS-T4ltfGfUZkaSL9CaoslkaSiwqsz_dhVnmoilLQrvBuC47NC9-XQ3Ih8OT0t9yyNUVbagmY-VxYDVWBomeuslj85xzyf8W-63VDsOM14pqNxso0jGl9zv2slmsvD0PhcC1e9RBTqRt4NuA/mv19xw03r4khreo/nav-menu-darkpurplr.zip)
 
+### ⚫⚫ Black ⚫⚫
+![Pink](https://i.ibb.co/chywkXSq/blacknav.jpg)\
+:point_right:	 [DOWNLOAD](https://download1500.mediafire.com/atrzuu5uwhagRtkEqhqCqhlwN_EbCTIqHC6XUFTgkWfXcB4nWVSz9hvgt9gnEJyG-To5x6vezSWkM-ll4rxw1MlRhZsbZGhdhw4zAhW4s1g2yPEtI0MBUy46dOm_m_HOSIn5vhcTSSOLpwbGwPmhZAwPR7CviLfYynWwRg2pCYh5CQw/9bht5xquom7dgvr/nav-menu-black.zip)
 
